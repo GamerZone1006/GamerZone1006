@@ -1,4 +1,4 @@
-Heyy there, I'm GamerZone1006!👋
+Heyy there, I'm Anushka Yadav!👋
 
 Welcome to my GitHub profile! I'm a developer passionate about web development, animation, and AI.
 
